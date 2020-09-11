@@ -1,4 +1,4 @@
-### Hi there ... My name is Aliya Mutiyara I am a Data Analyst/Data Scientist 👋
+### Hi there ... My name is Aliya Mutiyara I am a Machine Learning Engineer | Data Analyst | Data Scientist 👋
 
 
 
