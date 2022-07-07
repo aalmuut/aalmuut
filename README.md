@@ -4,9 +4,9 @@
 
 - 🔭 I’m currently working on personal projects
 - 👯 I’m looking for collaborating on Data Analysis
-- 🤔 I’m looking for help with my pocket
-- 💬 Ask me about Anything
+- 💬 Text me if you want to hire an internship employee
 - 📫 How to reach me: [LinkedIn](http://linkedin.com/in/aliyamu)
 - 😄 Pronouns: aL
 - ⚡ Fun fact: I comb my hair once a week (at least)
+- ^^ In spare time I love writing poems
 
